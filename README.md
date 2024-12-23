@@ -1,0 +1,1 @@
+# TechGrowth-Inc-Financial-analysis
